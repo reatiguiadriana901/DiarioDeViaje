@@ -10,3 +10,7 @@ Colombia es un destino diverso y seguro si se viaja con precaución, ideal para 
 ![](https://cloudfront-us-east-1.images.arcpublishing.com/infobae/FEC67PB62VC3VF6LF5KNEGB2EE.jpg)
 
 Imagen: Ciudad Cartagena Colombia.
+
+
+## Informacion sobre Colombia
+Colombia, oficialmente República de Colombia, es un país biodiverso situado en el noroeste de Sudamérica, con capital en Bogotá. Cuenta con más de 50 millones de habitantes, su idioma oficial es el español y utiliza el peso colombiano (COP). Es el único país sudamericano con costas en los océanos Pacífico y Atlántico (Mar Caribe)  
