@@ -11,3 +11,5 @@ Turquía es un destino fascinante que mezcla historia, cultura y paisajes único
 
 Imagen: Hermosa ciudad en Turquia.
 
+## Informacion sobre Turquía
+Turquía es un país que se extiende desde Europa oriental hasta Asia occidental, con conexiones culturales con el antiguo imperio griego, el persa, el romano, el bizantino y el otomano. La cosmopolita Estambul, en el estrecho del Bósforo, alberga la icónica basílica Santa Sofía con su elevada cúpula y los mosaicos cristianos, la enorme mezquita Azul del siglo XVII y el palacio Topkapı, de alrededor del año 1460 y que fue hogar de sultanes. Ankara es la capital moderna de Turquía.
