@@ -1,0 +1,17 @@
+# Italia
+
+## Descripción
+Italia, oficialmente la República Italiana, es un país soberano de la Unión Europea situado en el sur de Europa, ocupando una característica península con forma de bota en el centro del Mediterráneo. Con Roma como capital, es reconocida mundialmente por su inmenso legado histórico (Imperio Romano), cuna del Renacimiento, gastronomía, moda y arte. 
+
+# Recomendación
+Para tu viaje a Italia, prioriza la primavera (abril-junio) o el otoño (septiembre-octubre) para evitar el calor extremo y las multitudes. Las ciudades imprescindibles son Roma, Florencia y Venecia, idealmente explorando por zonas (norte, centro, sur). Es obligatorio contratar un seguro médico de viaje con cobertura Schengen.
+
+## Foto
+![](https://d1c96a4wcgziwl.cloudfront.net/37f9COL5.jpg)
+
+Imagen: Coliseo Romano.
+
+
+## Informacion sobre Italia
+Italia, oficialmente la República Italiana, es un país del sur de Europa con forma de "bota", situado en el Mediterráneo. Con capital en Roma, cuenta con una población de casi 60 millones y es miembro de la UE, la zona euro y el espacio Schengen. Es famosa por su inmenso patrimonio histórico, arte, moda y gastronomía, además de ser el país con más sitios Patrimonio de la Humanidad por la UNESCO.
+
