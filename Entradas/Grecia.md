@@ -11,4 +11,5 @@ La mejor época para visitar Grecia es en primavera (abril-junio) u otoño (sept
 
 Imagen: Islas de Grecia
 
-
+## Informacion sobre Grecia
+Grecia, oficialmente la República Helénica, es un país soberano de Europa Meridional situado en el extremo sur de la península balcánica, con Atenas como capital. Es cuna de la civilización occidental, conocida por su historia antigua, democracia, filosofía y el cristianismo ortodoxo predominante. Con cerca de 11 millones de habitantes, es miembro de la Unión Europea y utiliza el euro.
