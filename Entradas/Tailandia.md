@@ -11,3 +11,5 @@ Tailandia es un destino seguro y fascinante, ideal entre noviembre y febrero (te
 
 Imagen: Bangkok Capital de Tailandia.
 
+## Informacion sobre Tailandia
+GTailandia, conocida como la "tierra de las sonrisas", es un país del sudeste asiático famoso por su cultura budista, exuberantes paisajes tropicales y templos ancestrales. Con Bangkok como capital, ofrece una mezcla de modernidad y tradición, destacando sus islas en el sur y el montañoso norte
