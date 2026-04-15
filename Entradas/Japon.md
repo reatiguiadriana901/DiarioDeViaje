@@ -6,3 +6,7 @@ Japón (Nippon-koku) es un país insular del este de Asia situado en el noroeste
 ## Recomendación
 Japón es un destino fascinante que mezcla tradición y modernidad. Se recomienda viajar en primavera (marzo-junio) para los cerezos o en otoño (septiembre-noviembre). Ciudades imperdibles incluyen Tokio (modernidad), Kioto (templos), Osaka (gastronomía) y la isla de Miyajima. Es fundamental respetar la puntualidad, el silencio en el transporte público y no fumar en la calle.
 
+## Foto
+![](https://japonismo.com/wp-content/uploads/2019/03/consejos-primavera-japon-japonismo.jpg)
+
+Imagen: Famoso Volcan monte Fuji de Japón
