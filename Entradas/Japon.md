@@ -10,3 +10,6 @@ Japón es un destino fascinante que mezcla tradición y modernidad. Se recomiend
 ![](https://japonismo.com/wp-content/uploads/2019/03/consejos-primavera-japon-japonismo.jpg)
 
 Imagen: Famoso Volcan monte Fuji de Japón
+
+## Informacion sobre Japón
+Japón es un país insular del este de Asia, famoso por su mezcla única de tradiciones milenarias y tecnología avanzada. Con capital en Tokio (el área metropolitana más poblada del mundo), el archipiélago cuenta con 126 millones de habitantes, un terreno mayormente montañoso y una rica cultura que incluye la gastronomía, el budismo y el sintoísmo
