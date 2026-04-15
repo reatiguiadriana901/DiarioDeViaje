@@ -6,3 +6,9 @@ Grecia, cuna de la civilización occidental, es un país en el sur de Europa com
 ## Recomendación
 La mejor época para visitar Grecia es en primavera (abril-junio) u otoño (septiembre-octubre), evitando el calor extremo y las multitudes de julio-agosto. Imprescindibles: la Acrópolis en Atenas (compra entradas anticipadas), las puestas de sol en Santorini, y las playas de Creta. Se recomienda alquilar coche para explorar a tu ritmo.
 
+## Foto
+![](https://www.omintassistance.com.ar/blog/wp-content/uploads/2018/01/Grecia.jpg)
+
+Imagen: Islas de Grecia
+
+
