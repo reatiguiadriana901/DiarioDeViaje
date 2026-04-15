@@ -6,3 +6,9 @@ Italia, oficialmente la República Italiana, es un país soberano de la Unión E
 # Recomendación
 Para tu viaje a Italia, prioriza la primavera (abril-junio) o el otoño (septiembre-octubre) para evitar el calor extremo y las multitudes. Las ciudades imprescindibles son Roma, Florencia y Venecia, idealmente explorando por zonas (norte, centro, sur). Es obligatorio contratar un seguro médico de viaje con cobertura Schengen.
 
+## Foto
+![](https://d1c96a4wcgziwl.cloudfront.net/37f9COL5.jpg)
+
+Imagen: Coliseo Romano.
+
+
