@@ -12,3 +12,6 @@ Para tu viaje a Italia, prioriza la primavera (abril-junio) o el otoño (septiem
 Imagen: Coliseo Romano.
 
 
+## Informacion sobre Italia
+Italia, oficialmente la República Italiana, es un país del sur de Europa con forma de "bota", situado en el Mediterráneo. Con capital en Roma, cuenta con una población de casi 60 millones y es miembro de la UE, la zona euro y el espacio Schengen. Es famosa por su inmenso patrimonio histórico, arte, moda y gastronomía, además de ser el país con más sitios Patrimonio de la Humanidad por la UNESCO.
+
