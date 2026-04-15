@@ -13,5 +13,7 @@ Islandia es un destino espectacular de hielo y fuego, ideal para ver auroras bor
 Imagen: Auroras boreales en Islandia.
 
 
+## Informacion sobre Islandia
+Islandia, ubicada en el Atlántico Norte, es una nación insular famosa como la "tierra del hielo y el fuego", destacando por sus glaciares, volcanes activos y paisajes geotermales. Con su capital en Reikiavik, es el país menos poblado de Europa, ofreciendo auroras boreales, seguridad extrema y una economía moderna basada en turismo, pesca y energía renovable. 
 
 ​
