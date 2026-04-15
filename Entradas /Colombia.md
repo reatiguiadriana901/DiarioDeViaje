@@ -5,3 +5,8 @@ Colombia es un país biodiverso y multicultural situado en el extremo norocciden
 
 ## Recomendación
 Colombia es un destino diverso y seguro si se viaja con precaución, ideal para visitar el Eje Cafetero, Cartagena, Medellín y el Parque Tayrona. Se recomienda viajar entre diciembre y marzo (temporada seca), usar aviones para largas distancias, probar el café local y llevar ropa para diversos climas.
+
+## Foto
+![](https://cloudfront-us-east-1.images.arcpublishing.com/infobae/FEC67PB62VC3VF6LF5KNEGB2EE.jpg)
+
+Imagen: Ciudad Cartagena Colombia.
